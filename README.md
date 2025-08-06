@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Aziel (@PolarisDevGit)
-- 👀 I’m interested in Technology, Security Systems, Fire Alarms, Elevators, EAS systems, and games! (and more :o)
+- 👀 I’m interested in Technology, Security Systems, Fire Alarms, Elevators, EAS systems, and games! (and more)
 - 🌱 I’m currently learning Nothing At the Moment, for now.
 - 📫 How to reach me: Discord = oneko_cord | Roblox = Aevaro (@ZentechInc)
 - 😄 Pronouns: He|Him|They|Them
